@@ -4,6 +4,7 @@
 | Jundullah H. R. | 05111940000144  |
 | Urdhanaka A.    | 5025211123      |
 | Gloriyano C. Daniel Pepuho | 5025201121 |
+| Muhammad Arkan K D | 5025211236 |
 
 ## Final words...
 
